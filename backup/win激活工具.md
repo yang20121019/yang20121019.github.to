@@ -1,0 +1,1 @@
+这是一个叫win激活工具的软件，下载地址： https://share.feijipan.com/s/yTC4wLtb
