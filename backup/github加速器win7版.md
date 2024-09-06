@@ -1,1 +1,1 @@
-这是github加速器win7版软件，下载地址： https://share.feijipan.com/s/tfC4vwq1
+这是github加速器win7版软件，下载地址： https://share.feijipan.com/s/d3C4vreW
